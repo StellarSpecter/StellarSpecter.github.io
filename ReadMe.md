@@ -1,0 +1,1 @@
+Unstructured, unrestricted, unproductive thoughts.
